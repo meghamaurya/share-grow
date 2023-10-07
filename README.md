@@ -1,1 +1,1 @@
-# sharing_thoughts
+# Share & Grow
